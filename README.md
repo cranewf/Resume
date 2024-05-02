@@ -21,4 +21,4 @@
 
 Вот собственно Я)
 
-![](https://prnt.sc/pCgw4YMDMKqC)
+![](img/photo_2022-11-07_20-23-33.jpg)
